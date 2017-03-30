@@ -1,6 +1,6 @@
 ### Li Ming
 
-- <small>mobile：(+86) 134-8865-3256</small>
+- <small>Mobile：(+86) 134-8865-3256</small>
 - <small>Email：armyiljfe@gmail.com</small>
 
 ---
